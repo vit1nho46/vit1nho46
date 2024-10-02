@@ -1,0 +1,1 @@
+- 👋 OLA EU SEU @vit1nho46 - ⚡ TENHO 16 ANOS - 🌱 SEU ESTUDANTE DO ENCINO MEDIO
